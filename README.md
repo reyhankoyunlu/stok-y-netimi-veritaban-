@@ -1,1 +1,1 @@
-# stok-y-netimi-veritaban-
+# stok-yonetimi-veritaban-
