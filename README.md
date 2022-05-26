@@ -1,0 +1,1 @@
+# stok-y-netimi-veritaban-
